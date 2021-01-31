@@ -21,6 +21,6 @@ showtoc: false
 - 这两年在看VTuber，没什么特别的感想，很消磨时光的东西。
 ##
 ## Love & Peace
-![ ](/img/60974793_p0.png)
+![ ](https://img.nohentai.xyz/About+me/60974793_p0.png)
 ##
 版头图来自[「esc.002」by 米山舞@pixiv](https://www.pixiv.net/artworks/72125545)
